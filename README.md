@@ -1,8 +1,7 @@
 
 # Hello 𝖁𝖗𝖔 💔
 
-Check out my website, send me anonymous messages, whatever
-https://skibidi.life/
+I really like C++
 
 | Platform | Username |
 | -------- | -------- |
