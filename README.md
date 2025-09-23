@@ -7,7 +7,7 @@ https://f22raptor.org
 
 | Platform | Username |
 | -------- | -------- |
-| Discord |  breastenjoyer |
+| Discord |  boobhater |
 | Twitter | CJLink_ |
 | Instagram | cj_link |
 | YouTube | CJ_Link |
